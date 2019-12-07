@@ -1,0 +1,1 @@
+# tomaspinho-rtl8821ce
